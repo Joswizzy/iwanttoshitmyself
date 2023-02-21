@@ -1,0 +1,2 @@
+# iwanttoshitmyself
+My daily thoughts
